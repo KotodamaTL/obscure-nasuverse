@@ -719,45 +719,80 @@ When I returned to retrieve the Black Barrel that I abandoned, the angel was als
 "A purpose? Every one of you has such a thing?"   
   
 "Yes. We didn't decide that purpose ourselves, but we have one. 
+
 ...This planet's death was the result of the life that inhabited it. The planet itself was not pessimistic about its death. Because the planet only contained a will; it didn't contain any meaning.
+
 However, an exception had been made. The Human Species was able to live on, even on the dead planet's land. 
+
 'Please, I want you to cause the extinction of every life form that is still alive.' 
+
 Naturally, the only ones who were able to hear the planet's cry for help were other planets. 
+
 I ... No. We were chosen as the absolute highest ranking species of each other planet that received this planet's will. 
+
 For example, the Aristotle known as Heaven's Corpse... The thing that used to be me... was the most superior individual on Venus."
+
  "W-What did you just say!?" 
- I lost my breath without realizing. Our enemies once stood at the top of each planet's evolutionary trees with an alien common sense?
+
+I lost my breath without realizing. Our enemies once stood at the top of each planet's evolutionary trees with an alien common sense?
  
 So the strongest life form of a planet is in other words the very planet itself. The Human Species, who had been surviving on this planet were essentially dealing with the eight other planets. 
+
 "——Yeah. Well, it doesn't look like we can win, huh?" 
+
 "Yes." The angel nodded apologetically.
+
 "Besides, they're the ones in the right. ...Jeez. If we just accepted the two-thousand year prophecy, we'd have ended up still being the victims."
+
 "You're wrong...! It's the Aristotles who are at fault. They do not have any will. Isn't it 
 a bad thing to erase life without having a will?"
+
 But there was no longer any notion of good or evil on this planet.
+
 The self-contradictory rule was to just live or die, it was as simple as that.
+
 That's why———, because I've lived for this long, I'm not going to just roll over and die.
+
 "It makes no difference. I don't have any kind of reason to fight either. At this point, I'll never have one. Isn't this the most simple way of life?"
+
 The angel didn't answer me.
+
 "What are you going to do? While it may be true that you have the same purpose, you and The Cross are different, right? Then your body will be destroyed along with this city, you know.
+
 You said you died instantly, but that's in our way of putting it.
+
 I don't think 'death' as we know it on this planet applies to the life forms from other planets.
+
 The truth is, you can already move, can't you?"
+
 The angel looked down and shook her head.
+
 "No, I can't. If I move, the outer shell of the wings will shatter. All of the leaves will fall from what everyone calls the World Trees. If that happens, countless angels will flood the land from the sky."
+
 The angel said that with a gloomy face.
+
 ...She's right. The number of leaves on top of the two trees reaching the sea of clouds far exceeded the number of Human Species in existence. The hundreds of millions of angels set free would cover the planet's surface in a blink of an eye.
+
 "But, you'll die if you don't!"
+
 "It's okay. Because I'm 'everyone', I'm nothing but a creation of their fantasies."
 "But that's just the knowledge given to you. You're different from us. We're just simple decorations to you. So it'd be better if you just hurried up and took off already!"
+
 The angel sadly smiled and just shook her head like before.
+
 "Are you an idiot!?"
+
 "I know I am. But I can't help it.
 ——I love this place."
+
 With teary eyes, the angel said so in satisfaction.
+
 How could I argue with that?
+
 "...I see. Well, I guess it can't be helped."
+
 "Yes", she nodded and stared at me. 
+
 Her sincere gaze was silently asking me "What about you?"
 
  “I’m going to die soon, you know. I think you can least answer that, the heavens won’t punish you.”  
