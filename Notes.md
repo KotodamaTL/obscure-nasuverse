@@ -122,7 +122,7 @@ Those among the Human Species who possess biology with an even stronger acceptan
 ## Mystic Sword [Knight Arms]
   
 The name of the weapon that Knights carry. 
-Every Liner born of this word receives the influence of Grain. Babies born with a large amount of Grain inside of them at the time of birth shape it as if it’s their bones as they mature, and when they reach adulthood, the Mystic Sword is birthed from their body. Because they are created with the unanalyzed entity Grain, Mystic Swords are able to cause various phenomena, and their powers are strong enough to be considered weapons. 
+Every Liner born of this world receives the influence of Grain. Babies born with a large amount of Grain inside of them at the time of birth shape it as if it’s their bones as they mature, and when they reach adulthood, the Mystic Sword is birthed from their body. Because they are created with the unanalyzed entity Grain, Mystic Swords are able to cause various phenomena, and their powers are strong enough to be considered weapons. 
 Only a few humans are able to form a Mystic Sword, and only those who wield a Mystic Sword capable of being used in a real battle are enlisted as Knights. 
 Only one Mystic Sword exists for each Knight.
   
