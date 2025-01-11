@@ -612,7 +612,7 @@ She only dropped by to rest her wings, but no luck. The moment she opened the ha
   
 The light pierced through the girl's wing and the plane's body, snatching away even the plane's AI and the girl's consciousness.
   
-And now, a few minutes later, he unconscious angel slowly woke up.
+And now, a few minutes later, the unconscious angel slowly woke up.
   
 “Good morning.” 
 As soon as I talked to her, she turned around and looked outside. The thing called an Aristotle was disappearing into the distance.  
