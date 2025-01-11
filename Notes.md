@@ -627,7 +627,7 @@ My blood had sprayed across the floor and formed a pool, painting the angel's bo
   
 I didn't answer her question. I just stared at what was happening outside.
   
-I saw the sky for the first time in my life, but I didn't expect the real I saw the sky for the first time in my life, but I didn't expect the real sky to be different from the one I read about in books.
+I saw the sky for the first time in my life, but I didn't expect the real sky to be different from the one I read about in books.
 
 "The sky... It's red."
 
