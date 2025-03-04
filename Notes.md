@@ -881,12 +881,9 @@ The paradise itself was promptly extinguished by The Black Aristotle. However, a
 However, even though he survived, he didn't have long to live. For Godot, life was now like living on the moon. Without the help of machines and medicines, he couldn't breathe properly, and had no choice but to eat poisonous food.  
 It was certainly quite bleak but since he had overcome many near-death experiences, Godot accepted— or "resigned" himself to become more of a masochist than a pessimist, taking it easy each day.  
   
-Once, out of a desire for revenge from the bottom of his heart, he excavated the Black Barrel  
-from the sealed area of Atlasia, and participated in a military operation to stop the descent  
-of Type-Venus. He withdrew from the war after that, and his location became a mystery.  
+Once, out of a desire for revenge from the bottom of his heart, he excavated the Black Barrel from the sealed area of Atlasia, and participated in a military operation to stop the descent of Type-Venus. He withdrew from the war after that, and his location became a mystery.  
   
-There's a rumor that he got himself involved in a mission to intercept Type-Saturn in a  
-certain city, and he is considered to have died in action.  
+There's a rumor that he got himself involved in a mission to intercept Type-Saturn in a certain city, and he is considered to have died in action.  
   
 He was the weakest, but Godot was a sniper who could resist the strongest poison.
 
@@ -944,9 +941,9 @@ This scene shows the normal battle state. What seems like a blue aura is not the
 
 ## Ado Edem
 The Knight that forms the Mystic Sword - Slash Emperor. 
-The knight didn't stand out during the battle against the Hundred A-Ray Subspecies, however at the time the Aristoteles came flying in, he rose to the centre stage. Knight Edem cleaved "The Black Aristotle" Type-Jupiter in two with a single swing of that Mystic Sword. 
+The knight didn't stand out during the battle against the Hundred A-Ray Subspecies, however at the time the Aristotles came flying in, he rose to the centre stage. Knight Edem cleaved "The Black Aristotle" Type-Jupiter in two with a single swing of that Mystic Sword. 
 Since then, the Hundred A-Ray Subspecies, Human Species and the Order of Knights built a disposal site to imprison Edem within The Great Rift, known as "The Witch's Umbrella" due to the excessively deviant nature of Slash Emperor. 
-...... As the battle with the Aristoteles was approaching its end, he was deployed as the Human Species' last resort, and annihilated "The Cross", Type-Saturn, which was said to be invincible, but it is currently unknown if he is alive or dead.
+...... As the battle with the Aristotles was approaching its end, he was deployed as the Human Species' last resort, and annihilated "The Cross", Type-Saturn, which was said to be invincible, but it is currently unknown if he is alive or dead.
 
 ## The Witch's Umbrella (Witch Swift Umbrella)
 A castle built in the middle of a large fault. Its name comes from the fact that it is built on a scaffold that looks like an open umbrella turned upside down. It is the original concept for the Millennium Castle from Tsukihime. Within the depths of the castle-shaped prison's many walls and multiple doors, a thousand chains bind the thing that sits tied to a throne. From the castle walls, these chains stretch towards the throne like a spider web, lifting from the throne requires nothing other than the strength to destroy the entire castle. In addition, there are 78 doors that must to be passed to arrive at the throne, these are also magical doors that no ordinary knight can break down.
