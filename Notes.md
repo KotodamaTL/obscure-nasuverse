@@ -978,7 +978,7 @@ Besides the main body's absurd attack values, it possesses a special ability res
 ## Crystal Valley
 This is the invasion of a repulsive, beautiful landscape.  
 Some magi and the Twenty-Seven Ancestors are capable of controlling mental worlds known as "Reality Marbles", but that which ORT possesses is on a different level.  
-ORT is a "visitor from another planet". Just by existing on earth, the environment around him (?) changes towards the environment he (?) once lived in. To put it simply, it is a falsification of the laws of nature — a leakage of an otherworldly order.  
+ORT is a "visitor from another planet". Just by existing on earth, the environment around him (?) changes towards the environment he (?) once lived in. To put it simply, it is a falsification of the laws of nature — an uncontained leakage of an otherworldly order.  
 If human beings are a species that destroys the earth, ORT is an "invader" that literally rewrites the earth into a different planet. Well... luckily since ORT is a lazy Mr. (?) Spider, it doesn't seem like he (?) has any interest in harming the earth. Maybe he (?)'s not interested in — an invasion. He (?) accidentally came along on the wrong time schedule, it is believed that he (?) has secluded himself (?) within the Crystal Valley until the promised time. However, it is impossible for humans to comprehend ORT's circumstances, the higher-ups of various organisations have been trying to deal with this kind of dangerous creature as soon as possible but have been counterattacked for poking their noses where they don't belong.
 
 ## Memo
