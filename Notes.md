@@ -936,8 +936,10 @@ It is a simple Mystic Sword that increases the size of the blade to match the si
 However, no matter how much True Ether is used for a Mystic Sword, a huge conversion source is required to compose such a huge mass.  
 The more Edem's Mystic Sword increases in size, the more it simultaneously scrapes away at the earth.  
 The flow of the old world's many laws allowed it to gain resources; Edem is no different, ***bringing ruin to the world in order to protect humanity***. It is possible to say that he is the embodiment of all humans existing at this present moment.  
-Before the formation of the Mystic Sword, it waits in its seed state, until it pierces the earth in response to Edem opening his eyes to the truth, growing like a green eggplant.  
+Before the formation of the Mystic Sword, it waits in its seed state, until it pierces the earth in response to Edem's awakening, growing like a green eggplant.  
 This scene shows the normal battle state. What seems like a blue aura is not the grain emitted by the blade, but the sky being torn by the sword. Slash Emperor shows its majestic appearance when it cuts through the devastated world's "red sky", revealing a glimpse of the truth.
+
+###### TL note: I chose to avoid localizing 開眼 as opening Edem's eyes to the truth or a spiritual awakening in the text itself because it can be misinterpreted in a few ways in lore contexts. It just means "opening one's eyes" [but it does mean those things in general](https://jisho.org/word/%E9%96%8B%E7%9C%BC)
 
 ## Ado Edem
 The Knight that forms the Mystic Sword - Slash Emperor. 
